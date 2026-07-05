@@ -68,5 +68,3 @@ If any provision of these Terms is held to be invalid or unenforceable, the rema
 
 For support or legal inquiries:
 
-Benjamin Ratzinger
-Email: Benjamin.Ratzinger@outlook.com
